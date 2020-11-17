@@ -77,6 +77,8 @@ https://max-everyday.com/2020/08/b2-hana-font/
 https://max-everyday.com/2020/08/hana-meatball/
 
 獅尾黑體家族：
+* 獅尾火腿黑體 Swei Match Leg
+https://max-everyday.com/2020/11/swei-match-leg/
 * 獅尾火柴黑體 Swei Match Sans
 https://max-everyday.com/2020/11/swei-match-sans/
 * 獅尾骨腿黑體 Swei Bone Leg
